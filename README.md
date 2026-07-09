@@ -1,0 +1,1 @@
+# FP20-Challenge-39-LexEuropa---The-Case-for-Legal-Intelligence
